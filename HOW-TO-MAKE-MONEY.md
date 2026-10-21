@@ -1,0 +1,1 @@
+The secret to making money is to start at a young age with the goal of becoming the world's most capable ink maker, eventually becoming the supplier of ink to the US Mint. That will be a very profitable endeavor and you will make lots of money.
